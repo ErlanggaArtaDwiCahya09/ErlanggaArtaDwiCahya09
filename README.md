@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on : digital world
 - 📫 How to reach me nothing
 - 😄 Pronouns: nothing
-- ⚡ Fun fact: CEO ChatGPT GAY
+- ⚡ Fun fact: I DON'T CARE
 
 <!---
 ErlanggaArtaDwiCahya09/ErlanggaArtaDwiCahya09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
